@@ -6,3 +6,4 @@
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I love redpandas
 <br />
+<img alt="GIF" src="https://media.giphy.com/media/Jxt4LYaJ7jCI8/giphy.gif" />
